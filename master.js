@@ -1,1 +1,4 @@
-ezt a b brenchen irtam meg 
+ezt a b brenchen irtam meg
+
+
+valami bazdmeg  
